@@ -1,0 +1,1 @@
+This Repo is Just a Hobby External Bugs will be Fixed idk im dumb
